@@ -28,8 +28,8 @@
 # Author
 
 - Twitter - (https://www.twitter.com/gbayesolav
-- LinkedIn - (Https://Www.Linkedin.Com/In/Gbayesola Busayo victor)
+- LinkedIn - (Https://Www.Linkedin.Com/In/GbayesolaBusayovictor)
 - Email - gbayesolav@gmail.com
-# Appreeciation
+# Final message
 Thanks to my friends and also zuri mentors
 For giving me a chance to have a shot at greatness. We move from here onwards
